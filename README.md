@@ -1,3 +1,10 @@
+Ashleigh Steedman
+2135772
+
+
+
+
+
 # Homework #2
 **Due Friday Oct. 27th @ 11:59 pm**
 
